@@ -1,1 +1,1 @@
-‘James Bond’
+‘ Look in the mirror’
